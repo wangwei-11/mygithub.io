@@ -7,4 +7,4 @@
 [花海](https://www.bilibili.com/video/BV1og41127XU/)
 
 ## ビデオ3
-[river flows in you]((https://www.bilibili.com/video/BV1FV4y1C7oM/)https://www.bilibili.com/video/BV1FV4y1C7oM/)
+[river flows in you](https://www.bilibili.com/video/BV1FV4y1C7oM/)
