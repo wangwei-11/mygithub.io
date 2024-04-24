@@ -1,4 +1,4 @@
-# 私のレコーディング作品！！
+# 私のレコーディング作品：SONYのC80による収録！！
 
 ## ビデオ1
 [夏の風](https://www.bilibili.com/video/BV1mp4y1g7mS/)
